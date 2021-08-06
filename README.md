@@ -12,7 +12,7 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...-->
-- Always has been -
+- Always has been 
 
 ![image](https://user-images.githubusercontent.com/58112789/128546464-42746f70-6012-4654-bfec-69f70b55744a.png)
 
