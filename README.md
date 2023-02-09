@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...-->
 - Always has been 
 
-![image](https://user-images.githubusercontent.com/58112789/128546464-42746f70-6012-4654-bfec-69f70b55744a.png)
+![image](https://preview.redd.it/7inz78of1ch51.jpg?width=640&crop=smart&auto=webp&s=902488e831e22423b3a31d72724d80003e80f582)
 
